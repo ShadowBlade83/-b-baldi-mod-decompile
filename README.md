@@ -1,1 +1,1 @@
-if ur nickname is bermud fuck yourself and leave the reposetory i WONT remove ts
+if ur nickname is bermud fuck yourself and leave the repository cuz i WONT remove ts
